@@ -1,2 +1,2 @@
 # MACHETE55
-Trade allthing!
+Trade Everything Here!
